@@ -6,4 +6,4 @@ This "Virus" its just to make joke, it cant damage your pc, WHEN YOU OPEN JUST R
 🤔 - Can it damage my pc? No, only when you think it gets out of control just restart the pc. remember to tell this to the victim
 
 
-
+Make by Gosha or GoshaKarr (github)
